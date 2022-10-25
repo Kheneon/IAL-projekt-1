@@ -1,3 +1,3 @@
 # IAL-projekt-1
 
-Hodnocení X/10
+Hodnocení 9,25/10
